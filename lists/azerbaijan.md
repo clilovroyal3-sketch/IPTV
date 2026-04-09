@@ -46,4 +46,8 @@ Ledir TV əlavə ediləcək
 
 Ledir ledir TV HD.Az əlavə ediləcək
 Gunaz TV HD AZ  Əlavə ediləcək 
+TRT TURK HD ƏLAVƏ EDİKİCƏK 
+BRT 1 HD ƏLAVƏ EDİKİCƏK 
+HABER GLOBAL  ƏLAVƏ EDİKİCƏK 
+1KANAK EUROPE  ƏLAVƏ EDİKİCƏK 
 
