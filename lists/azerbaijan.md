@@ -66,9 +66,17 @@ BAKU TV ƏLAVƏ EDİKİCƏK
 
 BAKU TV ƏLAVƏ EDİKİCƏK 
 
-Ayaz TV 
+Ayaz TV  ƏLAVƏ EDİLƏCƏK 
 
-virtual sports 
+virtual sports  ƏLAVƏ EDİLƏCƏK 
 
-virtual Sports BL
+virtual Sports BL ƏLAVƏ EDİLƏCƏK 
+
+Azerbaijan Music plus HD ƏLAVƏ EDİLİCƏK
+
+Azerbaijan music Hit əlavə ediləcək 
+
+ARB ŞƏKİ əlavə ediləcək 
+
+RUSSİA MUSİC əlavə ediləcək 
 
