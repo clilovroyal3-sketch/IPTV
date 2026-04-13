@@ -42,7 +42,13 @@
 | 0   | MTV Azerbaijan HD Ⓢ | [>](https://www.tvkaista.net/stream-forwarder/get.php?x=MTVAzerbaijan) | <img height="20" src="https://upload.wikimedia.org/wikipedia/commons/thumb/0/00/MTV_Az%C9%99rbaycan_%282022%29.png/622px-MTV_Az%C9%99rbaycan_%282022%29.png"/> | MTVAzerbaijan.az |
 | 0   | Naxçıvan TV HD  Ⓢ | [>](https://iptvorg.github.io/channels/az/NaxcivanTVNax18329civan18329TV) | NTV  | NTV.az NAXÇIVAN TV.az|
 
-Ledir TV əlavə ediləcək
+
+
+| 0   |Ledir  Azerbaijan TV  |  () |  
+| əlavə ediləcək|
+
+
+əlavə ediləcək
 
 Ledir ledir TV HD.Az əlavə ediləcək
 
@@ -59,4 +65,10 @@ HABER GLOBAL  ƏLAVƏ EDİKİCƏK
 BAKU TV ƏLAVƏ EDİKİCƏK 
 
 BAKU TV ƏLAVƏ EDİKİCƏK 
+
+Ayaz TV 
+
+virtual sports 
+
+virtual Sports BL
 
